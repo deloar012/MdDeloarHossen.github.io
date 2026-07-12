@@ -1,4 +1,4 @@
-Deloar Hossen
+Md Deloar Hossen
 
 Machine Learning Engineer | B.Sc. Computer Science Student
 
